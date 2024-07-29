@@ -7,6 +7,6 @@ I've attached my work, school, and personal project experiences here, showcasing
 
 Contact Information:
 
-Email: z.macnabb@gmail.com | Phone: (780) 819-7305 | LinkedIn: linkedin.com/in/zachery-macnabb | GitHub: github.com/
+Email: z.macnabb@gmail.com | Phone: (780) 819-7305 | LinkedIn: linkedin.com/in/zachery-macnabb 
 
 Thank you for taking the time to explore my portfolio. I'm always open to connecting with fellow professionals and exploring new opportunities.
